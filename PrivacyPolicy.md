@@ -59,6 +59,7 @@ I may update our Privacy Policy from time to time. Thus, you are advised to revi
 This policy is effective as of 2021-01-19
 
 **Affiliate Links**
+
 Our new Deals page contains a frequently updated list of specially curated deals available to users of The Shopping Buddy!
 
 Disclosure: These links are affiliate links, meaning I get a commission if you decide to make a purchase through my links at no cost to you
